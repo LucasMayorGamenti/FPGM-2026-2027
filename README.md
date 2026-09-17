@@ -9,6 +9,7 @@ Bienvenido a mi presentación,soy Lucas Mayor Gamenti, un alumno del centro [IES
 
 Entre mis aficiones están, ver partidos de Fútbol, jugar a varios videojuegos con mi portatil, salir con mis amigos de fiesta o hacer quedadas con ellos en casas para pasar el rato juntos jugando y viendo películas, me encanta hacer natación e ir a entrenar al gimnasio con mi amiga y tambien me encanta viajar a diferentes países para conocer nuevas personas, culturas y gastronomías.
 
+¡[](image.png)
 
 # **Mis logros**:
 
